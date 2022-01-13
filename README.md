@@ -18,7 +18,7 @@ Reference Letter from Asian Weekend
 Reference Letter from Sichuan People’s Radio FM97.0  
 Reference Letter from Huanqiu Cinema Pty Ltd  
   
-**Skill & Others**  
+**Skills & Others**  
 Photographers Association of Sichuan Membership Card  
 Chinese Cook Level 4 Occupational Qualification Certificate  
 Certificate for Traversing Australia  
