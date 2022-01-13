@@ -6,7 +6,7 @@ Scholarship - Melbourne Mobility Awards
 Red May Writing Competition  
 National Children’s Painting and Calligraphy Competition  
   
-**Extracurricular Activities**  
+**Extracurricular Activity**  
 Global Leadership  
 Universitas 21 Global Citizen Incubator - Leading Change   
 Universitas 21 Global Citizen   
